@@ -6,6 +6,8 @@
 
 ✉ Email: gabrielaroquekth@gmail.com
 
+🔗 Linkedin: https://www.linkedin.com/in/gabriela-roque-dos-santos/
+
 ----
 
 ## 🚀 Minhas Skills
